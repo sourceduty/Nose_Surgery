@@ -1,6 +1,6 @@
 ![Surgical](https://github.com/user-attachments/assets/34fb8e40-e08d-44fc-b270-2b301256f673)
 
->  A broken nose and surgery caused and facilitated by local-provincial Canadian police.
+> A broken nose and surgery caused and facilitated by local-provincial Canadian police.
 #
 
 Alex Aldridge, who suffers from Schizotypal Personality Disorder (STPD), has been grappling with the physical and emotional toll of a broken nose sustained during an encounter with local police. The incident left him with a severe nasal injury that could have been treated immediately, preventing further complications. However, Alex, already struggling with the effects of his mental health condition, was not informed about the possibility of an immediate fix. As a result, he went without any medical intervention for two years, enduring the discomfort and challenges of a broken nose that significantly affected his daily life and interactions.
